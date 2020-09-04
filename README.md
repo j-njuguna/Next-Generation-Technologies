@@ -1,1 +1,1 @@
-# Next-Generation-Technologies
+# Next-Generation Technologies
